@@ -21,9 +21,11 @@ All the documentation (medical, legal, and financial) can be found in the Append
 
 *The attackers videotaped the execution themselves. Police found it in their phones*.
 
-**A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE ON VIMEO:**
+**A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE HERE:**
 
 https://vimeo.com/1204855777
+
+https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html
 
 ## DONATIONS
 
