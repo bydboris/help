@@ -21,9 +21,9 @@ All the documentation (medical, legal, and financial) can be found in the Append
 
 *The attackers videotaped the execution themselves. Police found it in their phones*.
 
-**A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE ON UTUBE:**
+**A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE ON VIMEO:**
 
-https://youtube.com/shorts/NSQ5KwmcImU?si=eRICq_NqtqgnfWrp
+https://vimeo.com/1204855777
 
 ## DONATIONS
 
