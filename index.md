@@ -86,6 +86,6 @@ c) Form IV-100a (eardrum)
 
 4. Treatment expenses
 
-![](images/reciet_1.jpg)
-![](images/reciet_2.jpg)
-![](images/reciet_3.jpg)
+![](images/receipt_1.jpg)
+![](images/receipt_2.jpg)
+![](images/receipt_3.jpg)
