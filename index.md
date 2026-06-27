@@ -23,17 +23,23 @@ All the documentation (medical, legal, and financial) can be found in the Append
 
 **A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE HERE:**
 
-https://vimeo.com/1204855777
+[VIMEO](https://vimeo.com/1204855777)
 
-https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html
+[RUMBLE](https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html)
+
+[YOUTUBE](https://youtube.com/shorts/NSQ5KwmcImU?si=eRICq_NqtqgnfWrp)
+
+[TIKTOK](https://vt.tiktok.com/ZSCMm89Y9/)
 
 ## DONATIONS
 
-If you want to help, here is my wallet:
+If you want to help, there are two options:
+
+### Crypto wallet:
 
 0x55D4819973eC8573dD2E4f709E366363804E1F18
 
-Network: **Polygon** (the only option!!!)
+Network: **Polygon** (only Polygon!!!)
 
 **Currency**:
 
@@ -42,6 +48,8 @@ Network: **Polygon** (the only option!!!)
 **USDC (Polygon)**
 
 **MATIC / POL**
+
+### [Bank requisites for money transfer](bank.md)
 
 Any amount of money is very important and will be taken with gratitude; it goes directly on food, housing, clothes and medical help.
 
