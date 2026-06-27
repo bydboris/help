@@ -72,6 +72,6 @@ c) Форма IV-100a (врач ЛОР)
 
 4. Чеки об оплате лечения
 
-![](images/reciet_1.jpg)
-![](images/reciet_2.jpg)
-![](images/reciet_3.jpg)
+![](images/receipt_1.jpg)
+![](images/receipt_2.jpg)
+![](images/receipt_3.jpg)
