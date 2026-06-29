@@ -3,7 +3,7 @@ The victim: Shcheglova Olga
 ![](images/assault_1.jpg)
 ![](images/assault_2.jpg)
 
-I am a 68-year-old independent writer currently living in Georgia, Tbilisi.
+I am a 68-year-old oppositional Russian writer and independent journalist currently living in Georgia, Tbilisi.
 Recently I was attacked, brutally
 beaten up and tortured by two strong and extremely cruel men. 
 
@@ -11,11 +11,9 @@ During the assault I was also robbed — I lost all my personal belongings inclu
 
 I was badly injured: at least 5 broken ribs, hemathorax, pneumothorax, eardrum perforation, multiple contusions and hematomas on the head (see Appendix 3).
 
-Tbilisi police opened a criminal case 007280526001(see Appendix 1, 2).
+Tbilisi police opened a criminal case (see Appendix 1, 2).
 I was urgently hospitalized for surgery.
 The treatment alone so far cost me 4359 GEL (see Appendix 4).
-
-I need money for further treatment and rehabilitation, which is slow at my age,  and basic living expenses.
 
 All the documentation (medical, legal, and financial) can be found in the Appendix below. 
 
@@ -35,7 +33,7 @@ If you want to help, there are two options:
 
 0x55D4819973eC8573dD2E4f709E366363804E1F18
 
-Network: **Polygon** (only Polygon!!!)
+Network: **Polygon**
 
 **Currency**:
 
@@ -46,8 +44,6 @@ Network: **Polygon** (only Polygon!!!)
 **MATIC / POL**
 
 ### [Bank requisites for money transfer](bank.md)
-
-Any amount of money is very important and will be taken with gratitude; it goes directly on food, housing, clothes and medical help.
 
 Thank you for your help!
 
@@ -62,7 +58,7 @@ Thank you for your help!
 
 3. Medical documentation from the Caucasus medical Center, Tbilisi.
 
-a) Epicris
+a) Epicrisis
 ![](images/epicris_1.jpg)
 ![](images/epicris_2.jpg)
 ![](images/epicris_3.jpg)
