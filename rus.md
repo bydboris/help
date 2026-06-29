@@ -22,8 +22,6 @@
 
 Короткий фрагмент этой записи можно посмотреть здесь:
 
-[VIMEO](https://vimeo.com/1204855777)
-
 [RUMBLE](https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html)
 
 [TIKTOK](https://vt.tiktok.com/ZSCMm89Y9/)
