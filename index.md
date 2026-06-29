@@ -25,7 +25,7 @@ All the documentation (medical, legal, and financial) can be found in the Append
 
 [RUMBLE](https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html)
 
-[YOUTUBE](https://youtube.com/shorts/NSQ5KwmcImU?si=eRICq_NqtqgnfWrp)
+[TIKTOK](https://vt.tiktok.com/ZSCMm89Y9/)
 
 ## DONATIONS
 
