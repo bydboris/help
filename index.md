@@ -23,13 +23,9 @@ All the documentation (medical, legal, and financial) can be found in the Append
 
 **A SHORT FRAGMENT OF THIS VIDEO IS AVAILABLE HERE:**
 
-[VIMEO](https://vimeo.com/1204855777)
-
 [RUMBLE](https://rumble.com/v7bux9g-brutal-assault-on-a-68-year-old-writer-in-georgia.html)
 
 [YOUTUBE](https://youtube.com/shorts/NSQ5KwmcImU?si=eRICq_NqtqgnfWrp)
-
-[TIKTOK](https://vt.tiktok.com/ZSCMm89Y9/)
 
 ## DONATIONS
 
